@@ -1,7 +1,3 @@
-[Text for this thingy here](https://reddit.authorea.com/users/101670/articles/129524/_show_article)
-
-===
-
 ![](https://annoyingrambles.files.wordpress.com/2013/09/socially-awkward1.gif?w=500&h=269)
 
 *Social* is probably the last word that people who know me well (Hi Mom!) would use to describe me. But being [one of those pesky *millenials*](http://www.theallusionist.org/allusionist/generation-what), I was born too late to ever get to know the (academic) Dark Ages intimately, i.e. the pre-internet past. That, and my abysmal high school diploma, which made sure that no university would accept me for studies in the two years after finishing school – afforded me lots of spare time for [*professional social networking/instagramming*](https://www.theguardian.com/higher-education-network/2016/aug/05/im-a-serious-academic-not-a-professional-instagrammer), or *blogging* as it was called then. So I came, somewhat naturally, from blogging about my daily routines to writing about my adventures in the lab, studying and doing science. 
