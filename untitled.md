@@ -10,4 +10,4 @@ First, there are the two publications on [family-wide personal genomics](https:/
 
 It’s hard to overstate how useful these connections have been and still are, especially given that I was still early in my career at the time of embarking on those collaborations. Usually you don’t easily get the opportunity to form international collaborations as a Master’s student. But thanks to social media you might as well, especially if you want to connect with people outside your own narrow research field. Because if it was not for social media, I probably would not have been doing some social science.
 
-So the **tl;dr** is: Social media isn’t only great to find people to talk science to, but also to find people with whom you can actually do science. 
+So the **tl;dr** is: **Social media isn’t only great to find people to talk science to, but also to find people with whom you can actually do science**. 
